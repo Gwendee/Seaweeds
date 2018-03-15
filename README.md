@@ -22,3 +22,15 @@ Fax
 
 Email
 info@marcelcarrageenan.com
+
+About Marcel
+
+Marcel Trading Corporation started business in 1969, exporting various sea products. In 1971, Marcel added dried seaweeds to its range of exports. Because of its policy of strict quality control and good value, the company quickly established strong supply relationships with many Carrageenan processors worldwide.
+
+As a major supplier of dried seaweed to the Carrageenan Industry, Marcel had been extensively involved in seaweed farming activities, which in turn has helped provide livelihood for hundreds of farmers and spur economic growth in seaweed farming areas in the Philippines. 
+
+From supplying dried seaweed raw materials, Marcel diversified into carrageenan processing in 1977, using Kappaphycus Alvarezii (Eucheuma Cottonii) and Eucheuma Denticulatum (Eucheuma Spinosum) as the main raw materials for producing Kappa and Iota Carrageenan. 
+
+Through years of experience, Marcel has developed an expertise in raw material procurement, carrageenan processing, food ingredients formulation, quality control and assurance, product development, financing, marketing, and technical assistance to customers. Now, Marcel owns and operates two carrageenan production plants and one blending facility, all located in the Philippines. The company also has marketing affiliates for local and worldwide sales and maintains warehouses to carry stocks of popular products in the US, Europe, and Asia. 
+
+As to the future, Marcel intends to continue to innovate, grow and lead in the worldwide carrageenan and food ingredient industry. Partnership and joint venture activities in various parts of the world will play a strategic role in achieving this vision. Taking equal importance will be the continuous improvement in production, research, product development, marketing and customer service.
