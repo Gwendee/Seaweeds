@@ -8,10 +8,7 @@ The Philippines, being surrounded by the Pacific Ocean in the East, South China 
 Marcel Carrageenan from its early years has been extensively involved in Philippine seaweed farming activities. Having a large network of farmers that expands the entire country, Marcel is now one of the largest exporters of Carrageenan bearing seaweed worldwide Eucheuma cottonii and Eucheuma spinosum. With its commitment to continuously contribute to the growth of the seaweed industry in the Philippines, Marcel intends to develop and explore the benefits of more Philippine seaweed products. Aside from Eucheuma cottonii and Eucheuma spinosum, new seaweed types such as Gracilaria are now included in Marcel's range of seaweed exports.
 
 Address
-5th Floor First Marcel Tower
-926 Araneta Avenue
-Quezon City 1104
-Philippines
+5th Floor First Marcel Tower 926 Araneta Avenue Quezon City 1104 Philippines
 
 Phone
 +63-2-712-2631
